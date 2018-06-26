@@ -7,7 +7,7 @@
 - 100 g unsalted butter
 - 500 g milk
 - 150 g granulated sugar
-- 50 g yeast or one envelope
+- 1 envelope dry yeast
 - 4 g salt
 - 2 g cardamom
 - 800 g flour
@@ -21,7 +21,7 @@
 ### Garnish
 
 - 1 egg
-- pearl sugar
+- Pearl sugar
 
 ## Instructions
 
