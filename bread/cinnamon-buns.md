@@ -32,7 +32,7 @@
 - Sous vide for 30 min. (This will create a friendly environment for the yeast)
 - Make dough from the flour and the sugar/milk liquid.
 - Divide dough in two-four parts and roll out both halves thin. If you have a large enough surface, you don't need to divide — I just find it easier to work with in smaller doughs.
-- Spread soft butter carefully, and sprinkle with sugar/cinnamon mix.
+- Spread soft, room temperature butter carefully, and sprinkle with sugar/cinnamon mix.
 - Roll them up from the longer side, and cut in 1.5cm/0.6" slices.
 - Let the cut pieces rest on their sides for 30 min.
 - Brush with whisked egg.
