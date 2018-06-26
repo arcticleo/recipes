@@ -4,13 +4,13 @@
 
 ### Buns
 
-- 100 g unsalted butter
+- 800 g flour
 - 500 g milk
 - 150 g granulated sugar
+- 100 g unsalted butter
 - 1 envelope dry yeast
 - 4 g salt
 - 2 g cardamom
-- 800 g flour
 
 ### Filling
 
