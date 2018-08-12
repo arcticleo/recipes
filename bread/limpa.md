@@ -10,7 +10,7 @@ Yield 2 loaves
 - 50 g unsalted butter
 - 5 dl plain kefir
 - 140 g dark sirap
-- 2 tsk salt
+- 15 g salt
 - 155 g dark rye flour
 - 650 g bread flour
 
