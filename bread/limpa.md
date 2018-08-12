@@ -6,13 +6,13 @@ Yield 2 loaves
 
 ### Loaves
 
-1 envelope dried yeast
-50 g unsalted butter
-5 dl plain kefir
-1 dl dark sirap
-2 tsk salt
-6 dl rågsikt
-6 dl vetemjöl special
+- 1 envelope dried yeast
+- 50 g unsalted butter
+- 5 dl plain kefir
+- 1 dl dark sirap
+- 2 tsk salt
+- 155 g dark rye flour
+- 650 g bread flour
 
 ### Garnish
 
