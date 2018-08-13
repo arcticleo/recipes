@@ -8,7 +8,7 @@ Yield 2 loaves
 
 - 1 envelope dried yeast
 - 50 g unsalted butter
-- 5 dl plain kefir
+- 550 g plain kefir
 - 140 g dark sirap
 - 15 g salt
 - 155 g dark rye flour
