@@ -1,7 +1,7 @@
 # Limpa
 
-Yield — 2 loaves
-Oven — 200C/390F
+- Yield — 2 loaves
+- Oven — 200C/390F
 
 ## Ingredients
 
